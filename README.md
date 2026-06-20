@@ -6,7 +6,7 @@
 
 <p align=center> <img src="https://i.imgur.com/VApHCeg.jpeg" /> </p>
 
-༒︎ [新𝔟𝔬𝔬𝔨](https://vvhoregxre.atabook.org/)
+<p align=center> ༒︎ [新𝔟𝔬𝔬𝔨](https://vvhoregxre.atabook.org/) </p>
 
 ***
 
